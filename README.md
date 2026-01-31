@@ -1,1 +1,1 @@
-Consistency builds greatness.
+Consistency
